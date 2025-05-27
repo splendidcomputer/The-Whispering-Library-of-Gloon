@@ -1,4 +1,3 @@
-
 ## The Whispering Library of Gloon: The Languid Bridge
 
 **Part I: The Unclocked City**
